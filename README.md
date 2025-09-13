@@ -2,7 +2,7 @@
 
 ### **Лучший чит на кс2** - кряк Крякнул очень популярный чит на Counter Strike 2 - Midnight Читы кс2 кряк платный
 
-https://github.com/user-attachments/assets/b4a73b71-f142-4777-b04a-193e735ea30f
+[image](https://github.com/user-attachments/assets/b4a73b71-f142-4777-b04a-193e735ea30f)
 
 # [СКАЧАТЬ](https://workupload.com/file/5pVufbgU2SP) Пароль - midnight2025
 
